@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yyyywaiwai
+- 👀 I’m interested in iOS Jailbreak
+- 🌱 I’m currently learning Java,C,C++
+- 📫 How to reach me ...Discord yyyywaiwai#1791
